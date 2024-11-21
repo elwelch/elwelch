@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @elwelch
+- 👀 I’m interested in Data Science and Sustainability 
+- 🌱 I’m currently learning Data Analytics and Machine Learning
+- 💞️ I’m looking to collaborate on any new project
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: I am newly trying to break into a new career 
